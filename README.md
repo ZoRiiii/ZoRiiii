@@ -5,7 +5,7 @@ Also I know this things: JAVA (Hello world expert), C (Segmentation fault), C# (
 MY FAVORITE LIBS FOR C++:<br/>
 Windows.h
 
-<br/><br/>
+<br/>
 
 me and my docs:
 
