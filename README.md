@@ -1,4 +1,5 @@
 # Привет 👋
 
 Я не знаю зачем я занимаюсь всем этим. Ненавижу программирование.
-![image](https://github.com/user-attachments/assets/0a981a8e-2258-4e04-954c-4a7de1142f0d)
+
+![the-collection-of-yonkagors-meme-faces-so-far-v0-1oi5fom412qc1](https://github.com/user-attachments/assets/321c56f4-0c27-4211-be8e-764e1f124c1e)
