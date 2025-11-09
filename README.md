@@ -2,4 +2,10 @@
 
 Kill me pls 😖👉👈</br>
 
-![2025-10-08 20-04-30](https://github.com/user-attachments/assets/68482e7d-e3ac-4a53-99cf-990ccb4886a7)
+MY COOL SKILLS:<br>
+✅ Memory leak in C<br>
+✅ Don't use OOP in C++<br>
+✅ Meow<br><br>
+
+I love to do bad meow things with ASM :3<br>
+I'm so silly... hehe 😸<br>
