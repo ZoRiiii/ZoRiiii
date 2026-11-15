@@ -2,4 +2,5 @@
 
 IM STUPID CONSTANT ENGINE DEVELOPER!!!
 
-<img width="720" height="720" alt="image" src="https://github.com/user-attachments/assets/9ed920ea-a92e-4db1-ae04-ecfd0a4f4f31" />
+https://github.com/user-attachments/assets/7f3b3260-1ad2-48de-99fd-3c8c14a8d55e
+
