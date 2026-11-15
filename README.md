@@ -1,11 +1,5 @@
 # HAIIII MA FRIENDS 👋
 
-Kill me pls 😖👉👈</br>
+IM STUPID CONSTANT ENGINE DEVELOPER!!!
 
-MY COOL SKILLS:<br>
-✅ Memory leak in C<br>
-✅ Don't use OOP in C++<br>
-✅ Meow<br><br>
-
-I love to do bad meow things with ASM :3<br>
-I'm so silly... hehe 😸<br>
+<img width="720" height="720" alt="image" src="https://github.com/user-attachments/assets/9ed920ea-a92e-4db1-ae04-ecfd0a4f4f31" />
